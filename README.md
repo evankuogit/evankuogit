@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Evan Kuo@Taiwan
+- 👀 I’m interested in coding, gaming, traveling, dazing
+- 🌱 I’m currently learning how to draw and 3d modeling.
+- 📫 Email:kuo.evan@gmail.com
